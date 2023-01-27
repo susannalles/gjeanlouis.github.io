@@ -20,7 +20,7 @@ Find me on Twitter @gabiejean_ and for inquiries please email me at gmj37@miami.
 	
 
 ## Publications 
-"A Black Feminist Gaze: Haitian Women Artists Reimagining Spiritual Iconography"
+"A Black Feminist Gaze: Haitian Women Artists Reimagining Spiritual Iconography", Perez Art Museum Caribbean Cultural Institute
 
 > **A Black feminist gaze, coming from the shores of the Caribbean and the streets of the diaspora, discomforts viewers by forcing them to engage with a gendered depiction of art that disrupts patriarchal dominance and Eurocentric religiosity.**
 
