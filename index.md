@@ -1,8 +1,3 @@
----
-layout: default
-title: Susanna Alles Torrent
----
-
 # Greetings! Bonjou!
 
 ## Who am I? 
