@@ -1,5 +1,5 @@
 ---
-layout: hyde
+layout: title
 title: Gabrielle Jean-Louis
 ---
 
